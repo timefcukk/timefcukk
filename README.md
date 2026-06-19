@@ -17,8 +17,25 @@
 
 <details>
 <summary><strong>befor u interact ...</strong></summary>
- i am a MINOR MINOR!!@! NO FREKAING UGLY AHS MINOPR NOO FUYACK MINORS DNI MINNORS DNI. i dONT USE TONETAGS infact i rarely use tem ,, i have really bnad issues with anger and i hav e outbursts about little things , if you get me upset illbe upset for the REST OF THE DAY. nothiung will cheer me up , if that annoys you than dont intract . i am a MINOR i am NOT AN ADULT and i dislike being talked to sexually
+ i am a MINOR MINOR!!@! NO FREKAING UGLY AHS MINOPR NOO FUYACK MINORS DNI MINNORS DNI. i dONT USE TONETAGS infact i rarely use tem ,, i have really bnad issues with anger and i hav e outbursts about little things , if you get me upset illbe upset for the REST OF THE DAY. nothiung will cheer me up , if that annoys you than dont intract . i am a MINOR i am NOT AN ADULT and i dislike being talked to sexually by ADULTS . i OFTEN SAY RUDE THINGS LIKE KYS PLEASE TELL ME IF YOU DONT WANT ME TO I WILL SOTPP IMMEDIATLE;Y OH MY GOS please clarify to me if u dont want me to say tha shit
 </details>
+
+</details>
+
+<br>
+
+<details>
+<summary><strong>iwcc iwc iwc ok</strong></summary>
+hetalia fanms that ship othershit than ruseng/engrus , like pls dont talk to me about ur ships that arent ruseng it seriously upsets mem ok??? , other steven fictkins anmd thats it
+</details>
+
+<br>
+
+<details>
+<summary><strong>dnii broo</strong></summary>
+basic dni criteria. fruk/rusame fans. pro/darkship. people who will get pissed off after i have an outburst as if its NOTCLARIFIED IN THIS i have OUTBURSTS OFTEENN!!!!!!!!!!!!!!!!
+</details>
+
 
 <br>
 
