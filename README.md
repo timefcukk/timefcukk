@@ -9,8 +9,15 @@
 
 <details>
 <summary><strong>stuff about me i guess</strong></summary>
-  hi as u can tell im a big steven kinnie . hes me im him . anyway fcukers!!  i go by he/him andn im ftm sso please dont ,, like ,, fcukin call me by she/her man thats actuall weird dud . i often hallucinate + overreact about things + have extreme anger issues , so im sorryu if i hav e an outburst at you . im really sorry and i know i probabl cant fix what i said. please dont say im not my kins like wjhat ur geerosss
+  hi as u can tell im a big steven kinnie . hes me im him . anyway fcukers!!  i go by he/him andn im ftm sso please dont ,, like ,, fcukin call me by she/her man thats actuall weird dud . i often hallucinate + overreact about things + have extreme anger issues , so im sorryu if i hav e an outburst at you . im really sorry and i know i probabl cant fix what i said. please dont say im not my kins like wjhat ur geerosss . if u ever need me to type more proper;ly tjhan thissiht , u can , cuz as u can tell i misspell alkot pls .
 
+</details>
+
+<br>
+
+<details>
+<summary><strong>befor u interact ...</strong></summary>
+ i am a MINOR MINOR!!@! NO FREKAING UGLY AHS MINOPR NOO FUYACK MINORS DNI MINNORS DNI. i dONT USE TONETAGS infact i rarely use tem ,, i have really bnad issues with anger and i hav e outbursts about little things , if you get me upset illbe upset for the REST OF THE DAY. nothiung will cheer me up , if that annoys you than dont intract . i am a MINOR i am NOT AN ADULT and i dislike being talked to sexually
 </details>
 
 <br>
