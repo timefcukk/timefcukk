@@ -9,9 +9,7 @@
 
 <details>
 <summary><strong>stuff about me i guess</strong></summary>
-<p align="center">
   hi as u can tell im a big steven kinnie . hes me im him . anyway fcukers!!  i go by he/him andn im ftm sso please dont ,, like ,, fcukin call me by she/her man thats actuall weird dud . i often hallucinate + overreact about things + have extreme anger issues , so im sorryu if i hav e an outburst at you . im really sorry and i know i probabl cant fix what i said. please dont say im not my kins like wjhat ur geerosss
-</p>
 
 </details>
 
