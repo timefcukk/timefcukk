@@ -1,6 +1,7 @@
 <div align="center">
 <img src="https://file.garden/afOzvZALWB7P0ssM/yesok1.png"/>
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=30&pause=500&color=505050&center=true&width=1200&height=150&lines=i+know+es+klingt+crazy+%2C%2C+but+I+only+want+a+kind+from+you+;sweety+sweety+marry+me;hunderttausend+kids+for+me;chances+will+passing+by%2C+my+dear;sweety+sweety+marry+me;hunderttausend+kids+for+me;chances+will+passing+by%2C+my+dear" alt="Typing SVG" /></a>
+<a href="https://hits.sh/github.com/zsiion/"><img alt="Hits" src="https://hits.sh/github.com/zsiion.svg?style=for-the-badge&label=deja%20vu&extraCount=20&color=ffffff&labelColor=000000&logo=pipecat"/></a>
 </div>
 <div align="right">
 <img src="https://file.garden/afOzvZALWB7P0ssM/steven23-removebg-preview.png"/>
