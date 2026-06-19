@@ -4,7 +4,8 @@
 </div>
 <div align="right">
 <img src="https://file.garden/afOzvZALWB7P0ssM/steven23-removebg-preview.png"/>
-<sup>art by hellcheese on tumblr/space /space /space /space /space</sup>
+<br>
+  <sup>art by hellcheese on tumblr/sup>
 <div align="center">
 
 <details>
