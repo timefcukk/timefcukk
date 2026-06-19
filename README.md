@@ -5,7 +5,7 @@
 <div align="right">
 <img src="https://file.garden/afOzvZALWB7P0ssM/steven23-removebg-preview.png"/>
 <br>
-  <sup>art by hellcheese on tumblr&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</sup>
+  <sup>art by hellcheese on tumblr</sup>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 <div align="center">
 
 <details>
