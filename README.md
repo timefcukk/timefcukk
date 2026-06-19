@@ -7,5 +7,13 @@
   <img src="https://file.garden/afOzvZALWB7P0ssM/steven23-removebg-preview.png"/>
 
 <div align="center">
+
+<details>
+<summary><strong> sttamps n siht </strong></summary>
+
+<br>
+
+</details>
+
   
   <img src="https://file.garden/afOzvZALWB7P0ssM/yesok2.png"/>
